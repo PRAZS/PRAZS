@@ -1,4 +1,4 @@
-<h1 align="center">HI IM Prazs👋</h1>
+<h1 align="center">HI IM Prazs🗿👋</h1>
 
 <h6 align="center"> Aku Bukanlah Mastah,Aku Hanyalah Pelajar</h6>
 
