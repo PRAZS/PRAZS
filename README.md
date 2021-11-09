@@ -1,2 +1,1 @@
-### HALO BANG AKU PRAS👋
-## ABOUT ME
+<center>### HALO BANG AKU PRAS👋</center>
